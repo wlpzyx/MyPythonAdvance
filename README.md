@@ -1,5 +1,0 @@
-# MyPythonAdvance
-MyPythonAdvance
-aaaaaaaaaaaaa
-
-阿阿阿阿阿阿阿阿阿阿阿阿阿
